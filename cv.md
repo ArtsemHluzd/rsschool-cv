@@ -7,7 +7,6 @@ Artsem Hluzd
 - tel.: +375(29)3032577
 - mail: Artem-gluzd@mail.ru
 - fb: https://www.facebook.com/artem.gluzd
-- linkedin:
 
 **3. Summary**
 
