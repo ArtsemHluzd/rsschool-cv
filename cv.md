@@ -1,11 +1,10 @@
-**1. First Name, Last Name (real ones)**
+**1. First Name, Last Name**
 Artsem Hluzd
 
 **2. Contact Info**
 - tel.: +375(29)3032577
 - mail: Artem-gluzd@mail.ru
 - fb: https://www.facebook.com/artem.gluzd
-- linkedin: http://linkedin.com/in/артем-глузд-a26332147
 
 **3. Summary** 
 My name Artsem, surname Hluzd. This year I will finish university and I’m very happy about it, because I have worked since 2nd year of university and all this time I dreamed of giving all my time to work and not being distracted by useless studies at the university. This time has come  
